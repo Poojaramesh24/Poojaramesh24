@@ -1,4 +1,4 @@
-Pooja is a active learner to pick up new things.she's a passionate person that 
+Pooja is an active learner to pick up new things.she's a passionate person that 
 will make her to be a deserved one to desire her goals.she's a dedicative one 
 to skill up and prepare herself for her career and will be sincere in her
 responsibilities.
